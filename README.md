@@ -1,6 +1,7 @@
+# Ramón E. Miranda Calderón
+
 ![33F5DCC2-FFB9-4681-A674-9A5F6C45CE76-1-156x192-0](https://github.com/user-attachments/assets/45787362-1764-4b62-ba5f-aae57e2e7cb6)
 
-Ramón E. Miranda Calderón – 
 	Nací en San Juan, Puerto Rico en el año 2002. Desde pequeño mostraba interés con la música e instrumentos, específicamente la guitarra. 
  En el año 2013 me matricularon en clases de guitarra y desde entonces el instrumento siempre ha sido parte de mi vida. 
  Cuando comencé la escuela superior en la American Military Academy, también comencé a tomar clases de guitarra y música en el Conservatorio de Música de Puerto Rico. 
